@@ -1,0 +1,1 @@
+# g-len-sekizli-lamba
